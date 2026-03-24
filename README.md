@@ -8,3 +8,5 @@ After understanding my weakness, create a 7-day communication improvement plan f
 For each day, include 3 practical daily exercises I should do and 1 communication challenge that pushes me slightly outside my comfort zone. Also include a confidence strategy that will help me communicate more confidently while practicing these exercises.  
 
 Ensure the plan is simple, practical, and suitable for a beginner.
+
+https://chatgpt.com/s/t_69c299d2ef3481919d287e5698d5633d
